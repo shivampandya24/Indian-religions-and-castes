@@ -1,1 +1,1 @@
-# Indian-religions-and-castes
+# Indian religions and castes
